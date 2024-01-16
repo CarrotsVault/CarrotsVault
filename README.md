@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CarrotsVault
+- 👀 I’m interested in Coding
+- 📫 How to reach me orangeroot on discord
+- ⚡ Fun fact: Carrots are underrated :<
+- 🗿 This is where all of my bot storage and stuff is stored 
